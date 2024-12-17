@@ -1,0 +1,1 @@
+błagam dajcie mi go
